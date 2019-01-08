@@ -1,6 +1,6 @@
 **Spicy Pretzels**
 
-* 1 cup oil
+* 1 cup olive oil
 * 1 envelope Ranch dressing mix
 * 1 tsp garlic powder
 * 1 tsp cayenne pepper
